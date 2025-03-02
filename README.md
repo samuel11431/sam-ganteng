@@ -1,2 +1,2 @@
-# sam-ganteng
+# SAMUELSIMORANGKIR
 ini hanya percobaan
